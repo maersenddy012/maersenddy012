@@ -1,5 +1,5 @@
 jjlkkлl- 👋 Hi,dacx I’m sda@maersenddbmnbnbmnyuyun.vbmcxvfvxc
-- 💞️ I’m loodsking to xczxczxxmh,coсчzxczxjkcxzмlldfbvcaborate on ...zxcasdasdsacxzsdsfds
+- 💞️ I’m loodsking to xczxczxxmh,coсчzxczxjkcxzмllghjkdfbvcaborate on ...zxcasdasdsacxzsdsfds
 - 📫 How to bmhgjsadsarexzczxachzxcчсмmeффівфівівіasxasxsaxвіsdsxcxфвф ...
 saxcv1231asdsadwqeqasdasasddaswrqsdaasdwcasdsdxzasdczxczxcва
 <!---asadsdasdasdasdфів
